@@ -1,6 +1,6 @@
 # me397m_midterm
 github repo for class midterm
 
-I deleted everyone's comments because they were bad.
+Why would you do that????????????? :(
 
--Phil
+P.S. I also need to walk my dog Anna...
