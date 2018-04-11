@@ -1,6 +1,6 @@
 # me397m_midterm
 github repo for class midterm
 
-Why would you do that????????????? :(
+This document is cancelled.
 
-P.S. I also need to walk my dog Anna...
+Go home. 
